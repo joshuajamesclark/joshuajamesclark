@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @joshuajamesclark
+- 👀 I’m interested in full stack web
+- 🌱 I’m currently learning how to be the best I can be
+- 💞️ I’m looking to collaborate on anything that I can be a good contributor for
+- 📫 How to reach me ... just ask me via email @ clarkgriswald1989@gmail.com
